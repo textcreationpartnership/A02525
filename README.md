@@ -35,7 +35,15 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Contemplations vpon the principall passages of the holy storie. The first volume, in foure bookes by
+
+1. To
+THE HIGH AND
+MIGHTY PRINCE
+HENRY Prince of WALES,
+his Highneſſes vnworthy ſeruant
+dedicates all his labours, and
+wiſhes all happineſſe.
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
